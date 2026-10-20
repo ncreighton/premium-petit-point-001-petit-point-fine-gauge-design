@@ -1,0 +1,2 @@
+# premium-petit-point-001-petit-point-fine-gauge-design
+Tracking stitches, colors, and gauges across multiple petit point projects feels chaotic—especially when you're working with fine gauge designs that demand precision. The Petit Point Fine Gauge Design Studio transforms that chaos into a structured, beautiful workspace.  This Notion template eliminates guesswork from your petit point practice by cen
